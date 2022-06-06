@@ -5,7 +5,9 @@
 ### *Contact information:* ###
 
 Phone: +375 44 538 09 49
+
 E-mail: mentsiuk.m@gmail.com
+
 Telegram: @Maks_Cooper
 
 ### *Briefly About Myself:* ###
